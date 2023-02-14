@@ -13,5 +13,5 @@
        - Y siempre tiene una moraleja al final del capitulo aunque este de forma chistosa
        
 
- Puedes ver la serie en el siguiente link[github pages](https://www.primevideo.com/detail/0HX4L62NMBMKP5QXU8QNR8958G/ref=atv_dp_season_select_s1?language=es_ES)
+ Puedes ver la serie dando click en el siguiente vinculo[Amazon prime](https://www.primevideo.com/detail/0HX4L62NMBMKP5QXU8QNR8958G/ref=atv_dp_season_select_s1?language=es_ES)
 
